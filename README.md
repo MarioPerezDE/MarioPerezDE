@@ -35,4 +35,5 @@ I'm now seeking opportunities to apply both my engineering rigor and machine lea
 
 ---
 
-📫 **Let’s Connect**: [LinkedIn](www.linkedin.com/in/mario-perez-a20b2339)
+📫 **Let’s Connect**: [LinkedIn](https://www.linkedin.com/in/mario-perez-a20b2339)
+
